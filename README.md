@@ -1,2 +1,2 @@
 here is my codesoft internship projects
-plese atke a look.
+please take a look.
